@@ -10,4 +10,5 @@ https://drive.google.com/file/d/1c7ZuYe4iDOPq82Lwe37JpcMWW8oVEMyr/view?usp=shari
 
 Elaborated by:
 Alvarez Ortiz Kevin Franco
+
 Mamani Chambi Luis Eduardo
